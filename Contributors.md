@@ -14,6 +14,7 @@
 - [Aishwarya Mali](https://github.com/aishwarya-mali)
 - [Aryaman Chanana] (https://www.instagram.com/arywcars/)
 - [Yashaswini Shivathaya](https://github.com/y-ashaswini)
+- [Aishwary singh](https://github.com/aishwarysingh7754)
 - [Shubham](https://github.com/ShubhamP48)
 - [Aaditya Dev Sharma](https://github.com/Aadi1659)
 - [Pankaj Chugh](https://github.com/pchugh17)
